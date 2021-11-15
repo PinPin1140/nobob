@@ -8,10 +8,10 @@ return `PAYMENT BY ZEEONE OFC
 		• Arya
 2. OVO
 	ㅁ 089516833542
-		• EL*****TI
+		• Arya
 3. DANA
 	ㅁ 089516833542
-		• ZE**** **C
+		• Arya
 
 *さ PULSA*
 
